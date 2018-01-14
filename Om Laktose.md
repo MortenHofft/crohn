@@ -29,10 +29,11 @@ Endelig er det vigtigt at få dækket sit kalkbehov på anden vis end med mælke
 Man kan købe laktase. Laktase kapsler skal tages i forbindelse med måltidet der indeholder laktose (sådan lyder beskrivelsen på pillerne)
 kan fx købes [her](https://www.bulkpowders.dk/laktase-tabletter-5000-fcc.html?gclid=Cj0KCQiAnOzSBRDGARIsAL-mUB36YHhozeyJtOg9fmfV71Idv8u5mCGH9zDakbVapA522BTxDpcM2f4aAmf5EALw_wcB)
 
-_effekt og bivirkninger_
+_effekt og bivirkninger 2)_
 
 Det lader til at det virker som de siger det gør. Og der er ingen officielle bivirkninger, men visse brugere siger at de får kvalme. Der er en lille risiko for en allergisk reaktion. Et sted læste jeg at det ville ødelægge kroppens egen evne til at nedbryde det, men kilden var ikke troværdig og referede kun selv andenhånds.
 
 -------
 
 1. https://www.apoteket.dk/sygdom/allergi-og-hoefeber/laktoseintolerans
+2. http://nutritionadvance.com/lactaid-pills-lactose-intolerance/
