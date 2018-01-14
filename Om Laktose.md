@@ -27,7 +27,7 @@ Endelig er det vigtigt at få dækket sit kalkbehov på anden vis end med mælke
 **Latase på pilleform**
 
 Man kan købe laktase. Laktase kapsler skal tages i forbindelse med måltidet der indeholder laktose (sådan lyder beskrivelsen på pillerne)
-kan fx købes her: https://www.bulkpowders.dk/laktase-tabletter-5000-fcc.html?gclid=Cj0KCQiAnOzSBRDGARIsAL-mUB36YHhozeyJtOg9fmfV71Idv8u5mCGH9zDakbVapA522BTxDpcM2f4aAmf5EALw_wcB
+kan fx købes [her](https://www.bulkpowders.dk/laktase-tabletter-5000-fcc.html?gclid=Cj0KCQiAnOzSBRDGARIsAL-mUB36YHhozeyJtOg9fmfV71Idv8u5mCGH9zDakbVapA522BTxDpcM2f4aAmf5EALw_wcB)
 
 -------
 
