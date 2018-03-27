@@ -5,7 +5,7 @@
 
 * 200 g. jordbær (kan også være frosne).
 * 50 g. blåbær (kan også være frosne).
-* 30 g. banan
+* 30 g. banan (ca 1/3)
 * 2 dl. laktosefri mælk
 * 1 tsk. fiberHUSK (loppefrøskaller)
 * 1 tsk. flormelis
