@@ -19,4 +19,4 @@ Hurtige snacks. Særligt rart på fx arbejde eller udflugter
 ## Andet
 * Smoothie på termokrus
 * knækbrød
-* Müslibar
+* [Müslibar](myslibar.md)
