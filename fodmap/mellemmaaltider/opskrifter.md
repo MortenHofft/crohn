@@ -1,4 +1,4 @@
-Særligt vigtigt på arbejde og ude at have noget klar
+Hurtige snacks. Særligt rart på fx arbejde eller udflugter
 
 ## Grønt
 * 1/4 avocado (max 40g)
