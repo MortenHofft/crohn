@@ -4,8 +4,14 @@
 ## Havregrød
 Ideelt set lavet på Aurion glutenfri havregryn da de er de eneste der er testet, men mon ikke andre grovvalsede også er ok. Særligt når de laves til grød?
 
+Grød: 1 dl havregryn og 2½ dl vand, knsp groft salt
 Varianter:
-* havregrød med kanelsukker, lavet på 1 dl glutenfri havregryn og 2½ dl vand, knsp groft salt
+* kanelsukker (sukker enten roe, rør eller brun farin)
+* kakaopulver og sukker
+* nødder: mandler (max 12g), hasselnød (max 15g), valnød (max 135g)
+* bær: jordbær, hindbær (max 90g), blåbær (max 60g)
+* ahornsirup
+* jordnøddesmør
 
 ## Musli med mælk eller yoghurt
 Købe müsli er ofte ikke god da der er tørret frugt i.
