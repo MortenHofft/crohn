@@ -7,7 +7,7 @@
 * 50 g. blåbær (kan også være frosne).
 * 30 g. banan
 * 2 dl. laktosefri mælk
-* 1 tsk. fiberHUSK
+* 1 tsk. fiberHUSK (loppefrøskaller)
 * 1 tsk. flormelis
 * 1 tsk. vaniljesukker
 
