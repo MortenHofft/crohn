@@ -17,6 +17,6 @@ Hurtige snacks. Særligt rart på fx arbejde eller udflugter
 * Vindruer
 
 ## Andet
-* Smoothie på termokrus
+* Smoothie (kan tages med i termokrus)
 * knækbrød
 * [Müslibar](myslibar.md)
