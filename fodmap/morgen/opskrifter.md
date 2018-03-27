@@ -7,13 +7,17 @@ Ideelt set lavet på Aurion glutenfri havregryn da de er de eneste der er testet
 Grød: 1 dl havregryn og 2½ dl vand, knsp groft salt
 Varianter:
 * kanelsukker (sukker enten roe, rør eller brun farin)
+* stødt ingefær, kanel, muskatnød, stødte nelliker
 * kakaopulver og sukker
 * nødder: mandler (max 12g), hasselnød (max 15g), valnød (max 135g)
 * bær: jordbær, hindbær (max 90g), blåbær (max 60g)
 * ahornsirup
 * jordnøddesmør
+* laktosefri yoghurt, vanilje
+* græskar (lyder på sin vis lækkert, men har ikke prøvet det)
+* smørklat
 
-## Musli med mælk eller yoghurt
+## Musli med laktosefri mælk eller yoghurt
 Købe müsli er ofte ikke god da der er tørret frugt i.
 
 250g havregryn
