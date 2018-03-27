@@ -5,6 +5,7 @@
 Ideelt set lavet på Aurion glutenfri havregryn da de er de eneste der er testet, men mon ikke andre grovvalsede også er ok. Særligt når de laves til grød?
 
 Grød: 1 dl havregryn og 2½ dl vand, knsp groft salt
+
 Varianter:
 * kanelsukker (sukker enten roe, rør eller brun farin)
 * stødt ingefær, kanel, muskatnød, stødte nelliker
